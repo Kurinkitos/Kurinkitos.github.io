@@ -1,0 +1,1 @@
+# kurinkitos.github.io
